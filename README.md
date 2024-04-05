@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Agile methodology
 - 💞️ I’m looking to collaborate on for world 100% Technologist
 - 📫 How to reach me For LinkedIn Allan Targino 
-- 😄 Pronouns: him his
+- 😄 Pronouns: him dele
 - ⚡ Fun fact:I Like Motorcycle
 
 <!---
